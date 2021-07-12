@@ -3,7 +3,8 @@
 via web sites and chat rooms..  can somewone help me?
 - 🌱 I’m currently learning ...as much as i can
 - 💞️ I’m looking to collaborate on ...all matters in this area
-- 📫 How to reach me ...my phone is 
+- 📫 How to reach me ...my phone is 480-866-2331cell text now #
+- 
 
 <!---
 timmyboi1023/timmyboi1023 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
